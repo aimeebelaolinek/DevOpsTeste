@@ -1,0 +1,1 @@
+Olá! Seu futuro vai ser maravilhoso! Muitas coisas boas te aguardam, muita prosperidade e vida longa, você vai conseguir realizar todos os seus sonhos! Aimeê, você é incrível, talentosa e bonita, se ame e confie em si mesma, você vai conseguir vencer todos os obstáculos!
